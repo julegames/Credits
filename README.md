@@ -1,5 +1,8 @@
 # Garten of Banban Roblox Credits
 
+**[License]**
+[License Information ](https://creativecommons.org/licenses/by/4.0/)
+
 “Reception Desk” (Reception Desk - Download Free 3D model by James_Law [032331d] - Sketchfab 126) by James_Law
 is licensed under Creative Commons Attribution
 (http://creativecommons.org/licenses/by/4.0/ 30).
